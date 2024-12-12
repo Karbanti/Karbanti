@@ -2,7 +2,7 @@
 - 👀 I’m interested in Computer Science, Programming, and Video Games
 - 🌱 I’m currently learning C++ and Japanese!
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me: email: munizgiovanni911@gmail.com, discord: 
+- 📫 How to reach me: email: munizgiovanni911@gmail.com, discord: Karbanti#3107
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I'm 5'6
 
